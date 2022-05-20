@@ -1,2 +1,5 @@
-# airline-commander-cheats-unlock-all-planes
-Airline Commander Cheats unlock all planes Hacks free ac credits and flight 2022 version
+# Airline Commander Cheats unlock all planes Hacks free ac credits and flight
+
+Airline Commander Cheats unlock all planes Hacks free ac credits and flight 2022 version - As an advanced currency in the game, AC points will be the most challenging to win. This currency can be earned from daily tasks and achievements and can be used for many things. You can speed up the cooling down or waiting time of the job and the license acquisition period. Although it is difficult to start using it, there are other free options in addition to reducing the waiting time of airline commanders. You will basically accept the pilot job offered by other airlines and earn enough cash for new aircraft and the licenses required to make full use of these aircraft. Every new plane and license you unlock opens up more airports, which actually means more money making opportunities. You can use the accumulated flight rewards to buy some contracts. If you successfully sign these contracts, you can get more Flight points invested by you.
+
+<a href="https://growhunt.top/airline-commander/">check now</a>
